@@ -14,5 +14,3 @@ Specialized in:
 We understand that every project is unique, and our flexible problem-solving approach guarantees that we will find the perfect solution for your needs. With us, you can expect open communication, transparency, and collaboration throughout the entire process, from start to finish. 
 
 Let's work together to bring your project to the next level!
-- [Official](https://creatif.studio)
-- [Upwork](https://upwork.com/agencies/1604003886560763904)
